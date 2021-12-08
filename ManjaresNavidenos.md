@@ -1,17 +1,20 @@
+<div align="center">
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fsenseandedibility.com%2Farroz-con-dulce%2F&psig=AOvVaw3LCQM8wvZY_b6MHWVx5QNr&ust=1639060230606000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOCSk6u11PQCFQAAAAAdAAAAABAD" width='520' height='374' /> 
+
 # Manjares Navidenos.md
 ## Arroz con Dulce
 ### INGREDIENTES
-- Leche de coco 5 y 1/2 tazas
+- 🥛 Leche de coco 5 y 1/2 tazas
 - Jengibre 1 onza
 - Clavos de especia- 30 
 - Canela 1 cucharada de polvo
 - Anis estrellado
-- Agua 1 y 1/2 tazas 
-- Arroz 1 y 1/2 tazas 
+- 🚰Agua 1 y 1/2 tazas 
+- 🍚Arroz 1 y 1/2 tazas 
 - Azucar 1 y 1/2 tazas
-- Sal 1 y 1/4 cucharaditas
+- 🧂Sal 1 y 1/4 cucharaditas
 - Pasas 1 y 1/2 tazas
-- Mantequillas 2 cucharadas
+- 🧈Mantequillas 2 cucharadas
 ### Procedimiento
 1. En un tazón mediano, agregue el arroz y el agua fría lo suficiente para cubrir por 2”. Deje remojar el arroz por 1 hora; saque el agua y deje a un lado.
 2. Mientras tanto, en una cacerola mediana a fuego medio-alto, ponga a hervir 4 tazas de agua, clavo de olor, jengibre, canela y sal. Baje el fuego a medio bajo, cocine a fuego lento por 10 minutos. Retire y deseche las especias. Reserve el agua en una cacerola. 
