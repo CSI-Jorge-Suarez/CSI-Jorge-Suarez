@@ -1,5 +1,6 @@
 <div align="center">
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fsenseandedibility.com%2Farroz-con-dulce%2F&psig=AOvVaw3LCQM8wvZY_b6MHWVx5QNr&ust=1639060230606000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCOCSk6u11PQCFQAAAAAdAAAAABAD" width='520' height='374' /> 
+  
+<img src="https://senseandedibility.com/wp-content/uploads/2020/12/Arroz-con-Dulce-Preview.jpg" width="520" height="374" /> 
 
 # Manjares Navidenos.md
 ## Arroz con Dulce
